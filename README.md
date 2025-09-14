@@ -1,1 +1,4 @@
-![download (9)](https://github.com/user-attachments/assets/1883c32d-ab17-4f05-9768-e46bb1f91800)
+
+![glowy 1x1x1x1!!!](https://github.com/user-attachments/assets/e0b9e279-aa93-45fb-ab33-1ac6f84bb443)
+
+`ѕнє/нєя ,, ¢+н ,, ω2ι`
