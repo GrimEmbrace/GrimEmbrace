@@ -1,4 +1,5 @@
 
-![glowy 1x1x1x1!!!](https://github.com/user-attachments/assets/e0b9e279-aa93-45fb-ab33-1ac6f84bb443)
+
+![ryoshu-n-corp-ryoshu](https://github.com/user-attachments/assets/f4ae5c4d-10c7-42e3-8db1-063c6ad7f32e)
 
 `ѕнє/нєя ,, ¢+н ,, ω2ι`
