@@ -1,5 +1,6 @@
 
+<img width="621" height="355" alt="Screenshot 2025-10-19 130601" src="https://github.com/user-attachments/assets/f13e6bbb-bdd3-4051-853f-9b7491f3dd13" />
 
-![ryoshu-n-corp-ryoshu](https://github.com/user-attachments/assets/f4ae5c4d-10c7-42e3-8db1-063c6ad7f32e)
+
 
 `ѕнє/нєя ,, ¢+н ,, ω2ι`
