@@ -1,21 +1,21 @@
-
-<img width="1546" height="437" alt="diver up" src="https://github.com/user-attachments/assets/f3b59b81-38cc-427b-b494-fae99f06cc69" />
+<img width="1623" height="162" alt="image" src="https://github.com/user-attachments/assets/b32019a4-c4d7-444c-8980-ad312024c77b" />
 
 <h1  align="center";">ᴡᴇʟᴄᴏᴍᴇ ᴛᴏ ᴍʏ ᴘʀᴏꜰɪʟᴇ! </h1>
-
- ![G0BkiHlWcAABYbz](https://github.com/user-attachments/assets/66a880db-b826-44b5-8eab-12e34d870fad)
-**!!ᴀʀᴛ ʙʏ ᴅᴇᴀᴅᴀꜱꜰᴜᴄᴋ616 ᴏɴ x!!**                                                                                                           
-     ⋆·˚ ༘ *
+<img width="1280" height="720" alt="image" src="https://github.com/user-attachments/assets/d2679187-cfec-4bb9-b73a-3b6a1ba850f3" />
+                                                                                                          
   
-  ᴄ+ʜ, ɪɴᴛ ᴀɴʏᴛɪᴍᴇ ᴘʟᴇᴀꜱᴇᴀᴘᴇ , ᴅɴᴄ, 
+  <img width="1623" height="129" alt="image" src="https://github.com/user-attachments/assets/83f86eb8-3339-46d0-814d-912f7c68451b" />
+
+  ᴄ+ʜ, ɪɴᴛ ᴀɴʏᴛɪᴍᴇ ᴘʟᴇᴀꜱᴇ , ᴅɴᴄ , 
  ꜰᴇᴇʟ ꜰʀᴇᴇ ᴛᴏ ᴄʜᴇᴄᴋ ᴍʏ ꜱɪᴛᴇꜱ! (ꜱᴏᴍᴇ ᴀʀᴇ ʙᴇɪɴɢ ʀᴇᴡᴏʀᴋᴇᴅ)                
 
 ᴘʟᴇᴀꜱᴇ ᴅᴏ ɪɴᴛᴇʀᴀᴄᴛ ᴡ ᴍᴇ!                               
                                                                                                                                                                                                                                                                                           
 
 
-ɪ ʀᴇᴀʟʟʏ ʟᴏᴠᴇ ꜱᴇᴀɴ ꜰʀᴏᴍ ꜱᴇɪʟᴅɪʀᴇᴄᴛᴏʀʏ ɪꜰ ʏᴏᴜ ᴅɪᴅɴ'ᴛ ɴᴏᴛɪᴄᴇ ᴏᴏᴜɢʜʜɢʜɢʜ ꜱᴏ ꜱᴘᴏᴏᴋʏ ᴏɢᴜʜʜʜʜ 
-ɪᴍ ᴜꜱᴜᴀʟʟʏ ᴀᴛ ᴛʜᴇ ᴛʀᴇᴇ ʙᴇʜɪɴᴅ ᴍᴀʀᴋᴇᴛ ᴏʀ ꜰᴏʀꜱᴀᴋᴇɴ ᴀʀᴇᴀ (80% ꜱᴀꜰᴇ ꜱᴇʀᴠᴇʀ 1) ɪꜰ ʏᴏᴜ ᴡᴀɴɴᴀ ᴄᴏᴍᴇ ᴀɴᴅ ꜱᴀʏ ʜɪ ^^
+ɪ ʀᴇᴀʟʟʏ ʟᴏᴠᴇ ꜱᴇᴀɴ ꜰʀᴏᴍ ꜱᴇɪʟᴅɪʀᴇᴄᴛᴏʀʏ ɪꜰ ʏᴏᴜ ᴅɪᴅɴ'ᴛ ɴᴏᴛɪᴄᴇ ᴏᴏᴜɢʜʜɢʜɢʜ ꜱᴏ ꜱᴘᴏᴏᴋʏ ᴏɢᴜʜʜʜʜ ,
+ɪᴍ ᴜꜱᴜᴀʟʟʏ ᴀᴛ ᴛʜᴇ ᴛʀᴇᴇ ʙᴇʜɪɴᴅ ᴍᴀʀᴋᴇᴛ ᴏʀ ʀᴏʙʟᴏx ᴀʀᴇᴀ ᴍᴏꜱᴛʟʏ ᴜɴᴅᴇʀ ᴛʀᴇᴇꜱ (80% ꜱᴀꜰᴇ ꜱᴇʀᴠᴇʀ 1) ɪꜰ ʏᴏᴜ ᴡᴀɴɴᴀ ᴄᴏᴍᴇ ᴀɴᴅ ꜱᴀʏ ʜɪ ^^
+
 
 <h1  align="center";">ᴅɴɪꜱ: </h1>
 
@@ -41,7 +41,7 @@
 
 ɢʀɪᴍᴇᴍʙʀᴀᴄᴇ ᴏʀ ɴᴇᴜʀᴏᴛᴇɴɪᴄᴄ ᴏɴ ᴍᴏꜱᴛ ꜱᴏᴄɪᴀʟꜱ 
 
+<img width="1623" height="129" alt="image" src="https://github.com/user-attachments/assets/43ad3bc7-68ef-4fca-9501-f1edfc2cd40c" />
 
-<img width="689" height="418" alt="Screenshot 2025-11-24 222315" src="https://github.com/user-attachments/assets/6019ec66-2eb3-460c-bf65-80fce51cc03d" />
 
-<img width="1546" height="437" alt="blototom" src="https://github.com/user-attachments/assets/6e18eac0-c900-4f0b-9576-6b152a257033" />
+<img width="1623" height="162" alt="image" src="https://github.com/user-attachments/assets/7724392a-38f3-4ffa-af73-9ead9a9faec8" />
