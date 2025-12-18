@@ -7,9 +7,9 @@
   <img width="1623" height="129" alt="image" src="https://github.com/user-attachments/assets/83f86eb8-3339-46d0-814d-912f7c68451b" />
 
   ᴄ+ʜ + ɪɴᴛ ʜᴇᴀᴠʏ ᴇɴᴄ
+ 
  ꜰᴇᴇʟ ꜰʀᴇᴇ ᴛᴏ ᴄʜᴇᴄᴋ ᴍʏ ꜱɪᴛᴇꜱ! (ꜱᴏᴍᴇ ᴀʀᴇ ʙᴇɪɴɢ ʀᴇᴡᴏʀᴋᴇᴅ)                
-
-ᴘʟᴇᴀꜱᴇ ᴅᴏ ɪɴᴛᴇʀᴀᴄᴛ ᴡ ᴍᴇ!                               
+                          
                                                                                                                                                                                                                                                                                           
 
 
