@@ -39,7 +39,7 @@
 
 ɢʀɪᴍᴇᴍʙʀᴀᴄᴇ ᴏʀ ɴᴇᴜʀᴏᴛᴇɴɪᴄᴄ ᴏɴ ᴍᴏꜱᴛ ꜱᴏᴄɪᴀʟꜱ 
 
-yume of sean and 1x4
+selfship of sean and 1x4
 
 <img width="1623" height="129" alt="image" src="https://github.com/user-attachments/assets/43ad3bc7-68ef-4fca-9501-f1edfc2cd40c" />
 
