@@ -35,11 +35,9 @@
 <h1  align="center";">ᴍᴏʀᴇ ɪɴꜰᴏ </h1>
 ɪᴍ ᴇxᴛʀᴇᴍᴇʟʏ ᴀᴡᴋᴡᴀʀᴅ ᴀᴛ ꜰɪʀꜱᴛ ᴘʟꜱ ʙᴇ ᴘᴀᴛɪᴇɴᴛ ᴡɪᴛʜ ᴍᴇ ᴛᴏ ᴡᴀʀᴍ ᴜᴘ
 
-ꜱᴏᴍᴇ ᴏꜰ ᴍʏ ᴊᴏᴋᴇꜱ ᴍᴀʏ ᴄᴏᴍᴇ ᴏꜰꜰ ᴀꜱ ᴘʀᴏʙʟᴇᴍᴀᴛɪᴄ, ɪꜰ ɪᴛ ᴍᴀᴋᴇꜱ ʏᴏᴜ ᴜɴᴄᴏᴍꜰᴏʀᴛᴀʙʟᴇ ᴘʟᴇᴀꜱᴇ ᴛᴇʟʟ ᴍᴇ ꜱᴏ ɪ ᴄᴀɴ ꜱᴛᴏᴘ
-
 ɢʀɪᴍᴇᴍʙʀᴀᴄᴇ ᴏʀ ɴᴇᴜʀᴏᴛᴇɴɪᴄᴄ ᴏɴ ᴍᴏꜱᴛ ꜱᴏᴄɪᴀʟꜱ 
 
-selfship of sean and 1x4
+selfship of sean and 1x4 doubles are fine
 
 <img width="1623" height="129" alt="image" src="https://github.com/user-attachments/assets/43ad3bc7-68ef-4fca-9501-f1edfc2cd40c" />
 
