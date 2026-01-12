@@ -37,7 +37,7 @@
 
 ɢʀɪᴍᴇᴍʙʀᴀᴄᴇ ᴏʀ ɴᴇᴜʀᴏᴛᴇɴɪᴄᴄ ᴏɴ ᴍᴏꜱᴛ ꜱᴏᴄɪᴀʟꜱ 
 
-selfship of sean and 1x4 doubles are fine
+selfship of sean and dozer im fine with doubles
 
 <img width="1623" height="129" alt="image" src="https://github.com/user-attachments/assets/43ad3bc7-68ef-4fca-9501-f1edfc2cd40c" />
 
