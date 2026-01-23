@@ -40,6 +40,7 @@
 selfship of sean and dozer im fine with doubles,
 
 i tend to grow attached to my friends including new ones 
+
 not the best with communication when it comes to new people but i try my best! ^^ 
 
 
