@@ -31,6 +31,8 @@
 
 ➤ ᴜɴᴅᴇʀ 14
 
+➤THOSE forsaken fans
+
 
 <h1  align="center";">ᴍᴏʀᴇ ɪɴꜰᴏ </h1>
 ɪᴍ ᴇxᴛʀᴇᴍᴇʟʏ ᴀᴡᴋᴡᴀʀᴅ ᴀᴛ ꜰɪʀꜱᴛ ᴘʟꜱ ʙᴇ ᴘᴀᴛɪᴇɴᴛ ᴡɪᴛʜ ᴍᴇ ᴛᴏ ᴡᴀʀᴍ ᴜᴘ
@@ -42,6 +44,8 @@ selfship of sean and dozer im fine with doubles,
 i tend to grow attached to my friends including new ones 
 
 not the best with communication when it comes to new people but i try my best! ^^ 
+
+
 
 
 <img width="1623" height="129" alt="image" src="https://github.com/user-attachments/assets/43ad3bc7-68ef-4fca-9501-f1edfc2cd40c" />
