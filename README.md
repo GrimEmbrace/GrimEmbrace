@@ -6,46 +6,41 @@
   
   <img width="1623" height="129" alt="image" src="https://github.com/user-attachments/assets/83f86eb8-3339-46d0-814d-912f7c68451b" />
 
-  ᴄ+ʜ + ɪɴᴛ ʜᴇᴀᴠʏ ᴇɴᴄ, DNC ask for inspo
- 
- ꜰᴇᴇʟ ꜰʀᴇᴇ ᴛᴏ ᴄʜᴇᴄᴋ ᴍʏ ꜱɪᴛᴇꜱ! (ꜱᴏᴍᴇ ᴀʀᴇ ʙᴇɪɴɢ ʀᴇᴡᴏʀᴋᴇᴅ)                
-                          
-                                                                                                                                                                                                                                                                                          
+• i go by hypo or grim mostly but i do not mind other nicknames :) 
 
+• W2i and c+h freely always unless i state otherwise 
 
-ɪ ʀᴇᴀʟʟʏ ʟᴏᴠᴇ ꜱᴇᴀɴ ꜰʀᴏᴍ ꜱᴇɪʟᴅɪʀᴇᴄᴛᴏʀʏ ɪꜰ ʏᴏᴜ ᴅɪᴅɴ'ᴛ ɴᴏᴛɪᴄᴇ ᴏᴏᴜɢʜʜɢʜɢʜ ꜱᴏ ꜱᴘᴏᴏᴋʏ ᴏɢᴜʜʜʜʜ ,
-ɪᴍ ᴜꜱᴜᴀʟʟʏ ᴀᴛ ᴛʜᴇ ᴛʀᴇᴇ ʙᴇʜɪɴᴅ ᴍᴀʀᴋᴇᴛ ᴏʀ ʀᴏʙʟᴏx ᴀʀᴇᴀ ᴍᴏꜱᴛʟʏ ᴜɴᴅᴇʀ ᴛʀᴇᴇꜱ (80% ꜱᴀꜰᴇ ꜱᴇʀᴠᴇʀ 1) ɪꜰ ʏᴏᴜ ᴡᴀɴɴᴀ ᴄᴏᴍᴇ ᴀɴᴅ ꜱᴀʏ ʜɪ ^^
+• ouuh you want to sign my atabook and strawpage sooo badly im hypnotizing you ooooohh
+
+•i self ship with sean from seildirectory and dozer from grace I'm fine with doubles
+
+• Mutlifandomer
 
 
 <h1  align="center";">ᴅɴɪꜱ: </h1>
+• Basic dni criteria
 
-➤ ʙᴀꜱɪᴄ ᴅɴɪ ᴄʀɪᴛᴇʀɪᴀ
+• darkshippers, proshippers, pedofilies ,zoophiles , racist ect ect 
 
+• DNI if your 3 years younger than me, 3 years older iwc , i am 17 (unless i already know you before i wrote this)
 
-➤ʀᴀᴄɪꜱᴛꜱ
+• THOSE forsaken fans / forsaken fandom iwc
 
-
-
-➤ ʜᴏᴍᴏᴘʜᴏʙᴇꜱ , ᴘʀᴏꜱʜɪᴘᴘᴇʀꜱ , ᴢᴏᴏᴘʜɪʟᴇꜱ, ᴇᴄᴛ..
-
-
-➤ ᴜɴᴅᴇʀ 15
-
-➤THOSE forsaken fans
 
 
 <h1  align="center";">ᴍᴏʀᴇ ɪɴꜰᴏ </h1>
-ɪᴍ ᴇxᴛʀᴇᴍᴇʟʏ ᴀᴡᴋᴡᴀʀᴅ ᴀᴛ ꜰɪʀꜱᴛ ᴘʟꜱ ʙᴇ ᴘᴀᴛɪᴇɴᴛ ᴡɪᴛʜ ᴍᴇ ᴛᴏ ᴡᴀʀᴍ ᴜᴘ
 
-ɢʀɪᴍᴇᴍʙʀᴀᴄᴇ ᴏʀ ɴᴇᴜʀᴏᴛᴇɴɪᴄᴄ ᴏɴ ᴍᴏꜱᴛ ꜱᴏᴄɪᴀʟꜱ 
+• i do grow attatched to ppl quick pls keep that in mind
 
-selfship of sean and dozer im fine with doubles,
+• i can be like really awkward and not as socialable with new people/friends ill warm up eventually
 
-i tend to grow attached to my friends including new ones 
+• i try my best to match energy ok?
 
-not the best with communication when it comes to new people but i try my best! ^^ 
+• github altaccount : @beatzpurminote
 
+• Grimembrace or Neurotenicc on most socials ask to add 
 
+•i love all my friends okay? you all are so coolio /silly
 
 
 <img width="1623" height="129" alt="image" src="https://github.com/user-attachments/assets/43ad3bc7-68ef-4fca-9501-f1edfc2cd40c" />
