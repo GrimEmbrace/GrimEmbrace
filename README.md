@@ -12,7 +12,7 @@
 
 • ouuh you want to sign my atabook and strawpage sooo badly im hypnotizing you ooooohh
 
-•i self ship with sean from seildirectory im fine with doubles jst done be weird ok? 
+•i self ship with sean from seildirectory im fine with doubles jst dont be weird ok? 
 
 • Mutlifandomer
 
