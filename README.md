@@ -22,7 +22,7 @@
 
 • darkshippers, proshippers, pedofilies ,zoophiles , racist ect ect 
 
-• DNI if your 3 years younger than me, 3 years older iwc , i am 17 (unless i already know you before i wrote this)
+• DNI if you're -15 
 
 • THOSE forsaken fans / forsaken fandom iwc
 
