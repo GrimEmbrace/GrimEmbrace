@@ -30,7 +30,6 @@
 
 <h1  align="center";">ᴍᴏʀᴇ ɪɴꜰᴏ </h1>
 
-• i do grow attatched to ppl quick pls keep that in mind
 
 • i can be like really awkward and not as socialable with new people/friends ill warm up eventually
 
