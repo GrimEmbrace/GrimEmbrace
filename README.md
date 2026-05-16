@@ -16,6 +16,7 @@
 
 • Mutlifandomer
 
+• ARG / NULLSCAPE FANS PLEASE INT 
 
 <h1  align="center";">ᴅɴɪꜱ: </h1>
 • Basic dni criteria
