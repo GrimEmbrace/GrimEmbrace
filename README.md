@@ -41,6 +41,10 @@
 ✦ People who dont respect boundaries, keep coming back on alt accounts after blocked, ect ect 
 
 
+<p align="center">
+  <img width="40" height="45" alt="Screenshot 2026-05-30 204358"
+  src="https://github.com/user-attachments/assets/060f21f5-d292-4f04-84f1-e47758401b0c" />
+</p>
 
 
 
@@ -49,9 +53,12 @@
 
 
 
+<img width="168" height="174" alt="Screenshot 2025-11-23 225354" src="https://github.com/user-attachments/assets/a5ce372e-8e1e-4c53-9c78-64910bf39c08" /> 
+ok ok thats all byebyes
 
-
-<img width="1623" height="129" alt="image" src="https://github.com/user-attachments/assets/43ad3bc7-68ef-4fca-9501-f1edfc2cd40c" />
+‎ ‎ ‎ ‎ ‎ 
+‎ ‎ ‎ 
+<img width="1623" height="129" alt="image" src="https://github.com/user-attachments/assets/43ad3bc7-68ef-4fca-9501-f1edfc2cd40c" />  
 
 
 <img width="1623" height="162" alt="image" src="https://github.com/user-attachments/assets/7724392a-38f3-4ffa-af73-9ead9a9faec8" />
