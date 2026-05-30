@@ -1,46 +1,54 @@
 <img width="1623" height="162" alt="image" src="https://github.com/user-attachments/assets/b32019a4-c4d7-444c-8980-ad312024c77b" />
 
-<h1  align="center";">ᴡᴇʟᴄᴏᴍᴇ ᴛᴏ ᴍʏ ᴘʀᴏꜰɪʟᴇ! </h1>
-<img width="1280" height="720" alt="image" src="https://github.com/user-attachments/assets/d2679187-cfec-4bb9-b73a-3b6a1ba850f3" />
+<h1  align="center";">$${\color{blue}Arise.‎ no‎ breath‎ is‎ needed‎ for‎ your‎ anguish.}$$ </h1>
+
+<p align="center">
+  <img width="800" height="700" alt="tumblr_3eeec6ebda75b0d83090689097293072_f6dbc9d2_400" src="https://github.com/user-attachments/assets/d67601b7-1374-4bc1-906c-0d3d4291a10b" />
+</p>
                                                                                                           
   
   <img width="1623" height="129" alt="image" src="https://github.com/user-attachments/assets/83f86eb8-3339-46d0-814d-912f7c68451b" />
 
-• i go by hypo or grim mostly but i do not mind other nicknames :) 
+  $${\color{blue}Entombed‎ in ‎ digital‎ plastic.}$$
 
-• W2i and c+h freely always unless i state otherwise 
+  <h1 align="center";"> About
+    
+✦ I go by Hypo mostly, i am completely fine with other nicknames! just check pronouns page to be sure
 
-• ouuh you want to sign my atabook and strawpage sooo badly im hypnotizing you ooooohh
+✦ Heavy cudcomf, feel free to cudd with me anytime unless i state otherwise
 
-•i self ship with sean from seildirectory, im okay with doubles
+✦ Socially awkward, i am very shy around new people and will stuggle to keep conversations to keep going, it takes awhile for me to get completely comfortable ^^' though i try my best to match energy, if you're energetic ill be to
 
-• Mutlifandomer
+✦ Pansexual, Genderfluid any pronouns
 
-• ARG / NULLSCAPE FANS PLEASE INT 
+✦ Self/Yumeship with $${\color{blue}Sean‎ (Seildirectory)}$$ im fine with doubles just dont be weird or toxic and allat
+
+✦ sometimes i need tonetags i struggle time to time whenever something is said as a joke or not
+
+✦ the rest of my info can be found on my pronounspage/strawpage feel free to check them out (it would be so cool if you could sign my ata or straw 👀👀)
+
+✦ I LOVE ALL MY FRIENDS SO MCUH YOU ALL ARE THE BEST OKK?? <img width="35" height="30" alt="image" src="https://github.com/user-attachments/assets/24fcf398-0b67-40f0-97f2-a962b2262e99" />
+
 
 <h1  align="center";">ᴅɴɪꜱ: </h1>
-• Basic dni criteria
-
-• darkshippers, proshippers, pedofilies ,zoophiles , racist ect ect 
-
-• DNI if you're -15 
-
-• THOSE forsaken fans / forsaken fandom / Pressure 
+✦ Homophobes, racists, Proshippers, darkshippers, basic dni criteria
 
 
+✦ Under 15
 
-<h1  align="center";">ᴍᴏʀᴇ ɪɴꜰᴏ </h1>
+✦ (IWEC) Forsaken , Pressure fans ( mostly if you're on the problematic side of the fandom, if not you're fine and free to interact)
+
+✦ People who dont respect boundaries, keep coming back on alt accounts after blocked, ect ect 
 
 
-• i can be like really awkward and not as socialable with new people/friends ill warm up eventually
 
-• i try my best to match energy ok?
 
-• github altaccount : @beatzpurminote
 
-• Grimembrace or Neurotenicc on most socials ask to add 
 
-•i love all my friends okay? you all are so coolio /silly
+
+
+
+
 
 
 <img width="1623" height="129" alt="image" src="https://github.com/user-attachments/assets/43ad3bc7-68ef-4fca-9501-f1edfc2cd40c" />
