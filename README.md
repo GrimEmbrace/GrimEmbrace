@@ -21,7 +21,7 @@
 
 ✦ Pansexual, Genderfluid any pronouns
 
-✦ Self/Yumeship with $${\color{blue}Sean‎ (Seildirectory)}$$ im fine with doubles just dont be weird or toxic and allat
+✦ Self/Yumeship with $${\color{blue}Sean‎ (Seildirectory)}$$ and $${\color{pink}Celestial (Nullscape)}$$
 
 ✦ sometimes i need tonetags i struggle time to time whenever something is said as a joke or not
 
