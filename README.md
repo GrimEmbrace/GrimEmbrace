@@ -15,7 +15,7 @@
     
 ✦ I go by Hypo mostly, i am completely fine with other nicknames! just check pronouns page to be sure
 
-✦ Heavy cudcomf, feel free to cudd with me anytime unless i state otherwise ( DO NOT cover me unless i manually sit behind you)
+✦ Heavy cudcomf, feel free to cudd with me anytime unless i state otherwise 
 
 ✦ Socially awkward, i am very shy around new people and will stuggle to keep conversations to keep going, it takes awhile for me to get completely comfortable ^^' though i try my best to match energy, if you're energetic ill be to
 
