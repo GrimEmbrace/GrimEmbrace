@@ -1,50 +1,50 @@
-<img width="1623" height="162" alt="image" src="https://github.com/user-attachments/assets/b32019a4-c4d7-444c-8980-ad312024c77b" />
-
-<h1  align="center";">$${\color{blue}Arise.‎ no‎ breath‎ is‎ needed‎ for‎ your‎ anguish.}$$ </h1>
+<p align="center">
+  <img width="512" height="512" alt="Celestial_Idle" src="https://github.com/user-attachments/assets/882e6af4-0b10-46f4-8ab9-365dcac30c7f" />
+</p>
+<h1  align="center";">$${\color{hotpink}YOU  ‎ SHALL  ‎ WILT  ‎ IN  ‎ THIS  ‎ DANCE  ‎ WITH ‎  ME.}$$ </h1>
 
 <p align="center">
-  <img width="800" height="700" alt="tumblr_3eeec6ebda75b0d83090689097293072_f6dbc9d2_400" src="https://github.com/user-attachments/assets/d67601b7-1374-4bc1-906c-0d3d4291a10b" />
-</p>
+ <img width="1280" height="371" alt="tumblr_e73cf51234857fb8e15fd4f7cae84ca7_db21c590_1280" src="https://github.com/user-attachments/assets/470ddee3-14e0-45b1-8863-ee73baf8727b" />
+
                                                                                                           
   
-  <img width="1623" height="129" alt="image" src="https://github.com/user-attachments/assets/83f86eb8-3339-46d0-814d-912f7c68451b" />
 
-  $${\color{blue}Entombed‎ in ‎ digital‎ plastic.}$$
+
+  $${\color{hotpink}header  ‎  creds:  ‎  @survilevorzguilt   ‎ on   ‎ tumblr}$$
 
   <h1 align="center";"> About
-    
-✦ I go by Hypo mostly, i am completely fine with other nicknames! just check pronouns page to be sure
 
-✦ Heavy cudcomf, feel free to cudd with me anytime unless i state otherwise 
+  <img width="1500" height="146" alt="tumblr_771aba3dcce02a4de135ea5aeff05a24_14cc9295_2048" src="https://github.com/user-attachments/assets/b82b6e6f-c838-4e53-aab1-09852f8a83b9" />
 
-✦ Socially awkward, i am very shy around new people and will stuggle to keep conversations to keep going, it takes awhile for me to get completely comfortable ^^' though i try my best to match energy, if you're energetic ill be to
+✦ I go by **Hypo** / Grim / Neuro mostly
 
-✦ Pansexual, Genderfluid any pronouns
+✦ Heavy cudcomfort, feel free to always sit with me unless stated otherwise! Also feel free to interact ( i prefer w2i since im usually offtab) im nice i swear
 
-✦ Self/Yumeship with $${\color{blue}Sean‎ (Seildirectory)}$$ and $${\color{pink}Celestial (Nullscape)}$$
+✦ I am very shy around new people, please do expect me to be awkward at first though  i always try my best to match energy, if you're energetic i'll be to
 
-✦ sometimes i need tonetags i struggle time to time whenever something is said as a joke or not
+✦ Pansexual, Genderfluid and a yume/selfshipper!
 
-✦ the rest of my info can be found on my pronounspage/strawpage feel free to check them out (it would be so cool if you could sign my ata or straw 👀👀)
+✦ Self/Yumeship with $${\color{blue}Sean‎ (Seildirectory)}$$ and $${\color{pink}Celestial (Nullscape)}$$ , im okay with doubles! 
+
+✦ Tone tags are sometimes needed since i do have a hard time telling whenever something is a joke or not
+
+
+
+
 
 ✦ I LOVE ALL MY FRIENDS SO MCUH YOU ALL ARE THE BEST OKK?? <img width="35" height="30" alt="image" src="https://github.com/user-attachments/assets/24fcf398-0b67-40f0-97f2-a962b2262e99" />
 
 
 <h1  align="center";">ᴅɴɪꜱ: </h1>
+
+  <img width="1500" height="146" alt="tumblr_771aba3dcce02a4de135ea5aeff05a24_14cc9295_2048" src="https://github.com/user-attachments/assets/b82b6e6f-c838-4e53-aab1-09852f8a83b9" />
 ✦ Homophobes, racists, Proshippers, darkshippers, basic dni criteria
 
+✦ Qwell supporters, fans of controversal media iwec 
 
 ✦ Under 15
 
-✦ (IWEC) Forsaken , Pressure fans ( mostly if you're on the problematic side of the fandom, if not you're fine and free to interact)
-
-✦ People who dont respect boundaries, keep coming back on alt accounts after blocked, ect ect 
-
-
-<p align="center">
-  <img width="40" height="45" alt="Screenshot 2026-05-30 204358"
-  src="https://github.com/user-attachments/assets/060f21f5-d292-4f04-84f1-e47758401b0c" />
-</p>
+✦ Toxic non sharing yumeshippers 
 
 
 
@@ -53,12 +53,8 @@
 
 
 
-<img width="168" height="174" alt="Screenshot 2025-11-23 225354" src="https://github.com/user-attachments/assets/a5ce372e-8e1e-4c53-9c78-64910bf39c08" /> 
-ok ok thats all byebyes
+<img width="1280" height="285" alt="tumblr_00da6ae57a277f84bddbd98e6e81c2de_f6c60b09_1280" src="https://github.com/user-attachments/assets/b4f9b68c-a479-475a-88cf-2e17f808c6e6" />
 
 ‎ ‎ ‎ ‎ ‎ 
 ‎ ‎ ‎ 
-<img width="1623" height="129" alt="image" src="https://github.com/user-attachments/assets/43ad3bc7-68ef-4fca-9501-f1edfc2cd40c" />  
 
-
-<img width="1623" height="162" alt="image" src="https://github.com/user-attachments/assets/7724392a-38f3-4ffa-af73-9ead9a9faec8" />
