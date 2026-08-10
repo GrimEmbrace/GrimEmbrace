@@ -18,7 +18,9 @@
 
 ✦ I go by **Hypo** / Grim / Neuro mostly
 
-✦ Heavy cudcomfort, feel free to always sit with me unless stated otherwise! Also feel free to interact ( i prefer w2i since im usually offtab) im nice i swear
+✦ Heavy cudcomfort, feel free to always sit with me unless stated otherwise! 
+
+✦ PLEASE interact esp if you have the same interests as me (w2i preferred though im not always on tab) plspls 
 
 ✦ I am very shy around new people, please do expect me to be awkward at first though  i always try my best to match energy, if you're energetic i'll be to
 
@@ -28,7 +30,7 @@
 
 ✦ Tone tags are sometimes needed since i do have a hard time telling whenever something is a joke or not
 
-
+✦ things i am mostly interested in currently: **Nullscape** , confinement , zenith tower, depth spelunking 
 
 
 
