@@ -32,6 +32,8 @@
 
 ✦ things i am mostly interested in currently: **Nullscape** , confinement , zenith tower, depth spelunking, roblox arg, unstable smp , limbus company +lob corp
 
+✦ strawpage is kinda out of date will remake it soon
+
 
 
 ✦ I LOVE ALL MY FRIENDS SO MCUH YOU ALL ARE THE BEST OKK?? <img width="35" height="30" alt="image" src="https://github.com/user-attachments/assets/24fcf398-0b67-40f0-97f2-a962b2262e99" />
@@ -48,7 +50,7 @@
 
 ✦ Toxic non sharing yumeshippers 
 
-
+✦ people who dont have basic human decency and people who dont respect boundaries
 
 
 
