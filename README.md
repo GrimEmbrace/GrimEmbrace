@@ -30,9 +30,9 @@
 
 ✦ Tone tags are sometimes needed since i do have a hard time telling whenever something is a joke or not
 
-✦ things i am mostly interested in currently: **Nullscape** , confinement , zenith tower, depth spelunking, roblox arg, unstable smp , limbus company +lob corp
+✦ things i am mostly interested in currently: **Nullscape** , confinement , zenith tower, depth spelunking, roblox arg, unstable smp , limbus company +lob corp , deltarune
 
-✦ strawpage is kinda out of date will remake it soon
+
 
 
 
