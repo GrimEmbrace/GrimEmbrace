@@ -58,7 +58,10 @@
 
 
 <img width="1280" height="285" alt="tumblr_00da6ae57a277f84bddbd98e6e81c2de_f6c60b09_1280" src="https://github.com/user-attachments/assets/b4f9b68c-a479-475a-88cf-2e17f808c6e6" />
+<<p align="center">
+  <img width="400" height="400" alt="Untitled318_20260828224018" src="https://github.com/user-attachments/assets/ecaec04d-9620-42be-ab10-af73275f6289" />
+</p>
 
 ‎ ‎ ‎ ‎ ‎ 
-‎ ‎ ‎ 
+‎ ‎ ‎ <<p align="center"> Thats all for now, Thanks for reading! (Art by me) </p>
 
