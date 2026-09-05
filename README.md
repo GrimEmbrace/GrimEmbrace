@@ -32,7 +32,7 @@
 
 ✦ things i am mostly interested in currently: **Nullscape** , confinement , zenith tower, depth spelunking, roblox arg, unstable smp , limbus company +lob corp , deltarune
 
-
+✦ please do not copy my skins, if you want to take inspo please ask first.
 
 
 
