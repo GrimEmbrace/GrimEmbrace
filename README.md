@@ -8,6 +8,7 @@
 
 <h3  align="center";">$${\color{cyan}๑︵ Before ‎  you ‎  interact  ︵๑ }$$ </h3>
 <p align="center"> ✦ 17. 2009/01/29, People under 15 DNI or IWEC </p>
+<p align="center"> ✦ c+h heavy enc </p>
 <p align="center"> ✦ I'm friendly please do not be afraid to interact with me (please) whisper to interact is heavily preferred through since im 90% of times offtab, i will also most likely be very slow with responses  </p>
 <p align="center"> ✦ I usually do not interact first, im very shy and awkward especially with new people </p>
 <p align="center"> ✦I dissociate a lot, please be patient with me </p>
