@@ -1,27 +1,60 @@
-<h2  align="center";">$${\color{cyan}"The  ‎  law  ‎  doesn't  ‎  cover  ‎  the  ‎  Great  ‎  Sea."}$$ </h1>
-<h1  align="center";">$${\color{cyan}︵﹒⊹ ๑  ︵  ‎   ‎ 𓇼 ‎   ︵ ๑ ⊹﹒︵}$$ </h1>
-
-<img width="1920" height="368" alt="tumblr_bee8a6ae02a539de80ea19711430480d_693ab194_2048" src="https://github.com/user-attachments/assets/bf121e03-519f-4955-8741-75163ba3d0af" />
-<img width="1351" height="440" alt="tumblr_da925c903119ec2e60de042f5d6570aa_a41275c2_2048" src="https://github.com/user-attachments/assets/adf565dc-9c12-4bc9-a435-634cc6f40150" />
-<img width="1920" height="368" alt="tumblr_db4d2a0b020aa69027dbd52a6b171ebd_6086386d_2048" src="https://github.com/user-attachments/assets/6a388ca6-d70a-47ab-b608-3a503817fd21" />
-
-
-<h3  align="center";">$${\color{cyan}๑︵ Before ‎  you ‎  interact  ︵๑ }$$ </h3>
-<p align="center"> ✦ 17. 2009/01/29, People under 15 DNI or IWEC </p>
-<p align="center"> ✦ c+h heavy enc </p>
-<p align="center"> ✦ I'm friendly please do not be afraid to interact with me (please) whisper to interact is heavily preferred through since im 90% of times offtab, i will also most likely be very slow with responses  </p>
-<p align="center"> ✦ I usually do not interact first, im very shy and awkward especially with new people </p>
-<p align="center"> ✦I dissociate a lot, please be patient with me </p>
-<p align="center"> ✦ Self/Yumeship with $${\color{blue}Sean‎ (Seildirectory)}$$ and $${\color{hotpink}Celestial (Nullscape)}$$ </p>
-<p align="center"> ✦Check out my sites for more info (sign ata/straw for a million dollars) </p>
-
 <p align="center">
-  <img width="99" height="85" alt="download (12)" src="https://github.com/user-attachments/assets/ea3d65d4-06f5-4076-9dfa-e4f9153a4dac" />
-    <img width="99" height="56" alt="tumblr_3958fcbea97021890b22a51c8275d46c_9f7380bb_100" src="https://github.com/user-attachments/assets/931f2491-7c5e-452a-8be9-c341d6d73631" />
-  <img width="99" height="85" alt="download (13)" src="https://github.com/user-attachments/assets/82981a76-5dc7-4eec-adef-922cdc7ca463" />
+  <img src="https://komarev.com/ghpvc/?username=GrimEmbrace&label=VIEWERS&color=00C853&style=flat-square" />
 </p>
 
-<h3  align="center";">$${\color{cyan}꧁⎝ 𓆩༺✧༻𓆪 ⎠꧂ }$$ </h3>
-<p align="center">   $${\color{purple}Wemmbu}$$ fly away, i'll catch up.
+<p align="center">
+  <img width="130" height="130" alt="veeicon" src="https://github.com/user-attachments/assets/a00c33ae-fefe-4066-b6df-15fa6a11b5bb" />
+</p>
 
-<img width="1920" height="246" alt="tumblr_558435fd944f800d00fe6a8281269b02_741c02b0_2048" src="https://github.com/user-attachments/assets/f0a7dd8d-c522-4ef9-8b23-5d98e25a920f" />
+<h1 align="center">
+  <span style="color: #00C853;">⊹₊˚‧︵‿₊   Welcome!  ₊‿︵‧˚₊⊹ </span>
+</h1>
+
+<img width="1200" height="195" alt="uh" src="https://github.com/user-attachments/assets/96b526d3-47ce-40e8-8c2e-47bb0835980a" />
+
+
+<div align="center">
+  <img width="200" height="200" alt="yay" src="https://github.com/user-attachments/assets/5497485b-66d0-4aed-87ef-7a42ea272d5a" />
+  <img width="200" height="200" alt="tvee" src="https://github.com/user-attachments/assets/d7407851-3757-4bff-96ea-d9466e6d03c6" />
+  <img width="200" height="200" alt="pop up 1" src="https://github.com/user-attachments/assets/1fd5668e-2957-4b26-bace-c1ee6c8b5f30" />
+</div>
+
+
+
+
+
+<img width="963" height="67" alt="divider one" src="https://github.com/user-attachments/assets/0457571c-6168-46e3-aeaf-ff009e3a0804" />
+
+<h2 align="center">
+  <span style="color: #00C853;"><u>Before you interact</u></span>
+</h2>
+
+<img align="right" width="180" alt="awwww" src="https://github.com/user-attachments/assets/bd664d20-34a0-4ada-a836-6a19c5c07aeb" />
+
+𓂃 -15 DNI
+
+𓂃 Ships dni unless i state otherwise
+
+𓂃 c+h always heavy encouraged and w2i please i am not always on tab
+
+𓂃 DO NOT copy my skins, if you want to take inspo PLEASE message me first please and thank you
+
+𓂃 i yume/selfship with The Celestial (Nullscape) and Vee ( DW) selective sharing doubles iwc
+
+<img align="right" width="180" alt="awwww" src="https://github.com/user-attachments/assets/3baee16f-61c3-4343-a8a3-9a5b48b2fd19" />
+𓂃 Please check my pronouns page for more! it has most of the important information on there 
+
+𓂃 I am pony towns The Celestial (Nullscape)! thank you all for nominating me <3
+
+𓂃 Alts : DoomInBloom + Beatzpurminote
+
+<img width="963" height="67" alt="divider one" src="https://github.com/user-attachments/assets/0457571c-6168-46e3-aeaf-ff009e3a0804" />
+
+<p align="center">
+  <img width="110" height="110" src="https://github.com/user-attachments/assets/b5643f08-0829-4d15-aa21-41907559f71f" />
+  <img width="110" height="110" src="https://github.com/user-attachments/assets/318e0bcd-3410-4040-983b-1ba3c5ab4d05" />
+  <img width="110" height="110" src="https://github.com/user-attachments/assets/5dd5b3ed-aca9-4e51-8270-3cf0f2871936" />
+</p>
+
+
+<img width="1200" height="195" alt="br" src="https://github.com/user-attachments/assets/639d7fd2-8448-4ea6-bee8-4f5568007955" />
