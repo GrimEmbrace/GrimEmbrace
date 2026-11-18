@@ -37,14 +37,20 @@
 
 𓂃 c+h always heavy encouraged and w2i please i am not always on tab
 
+𓂃 please do not be afraid to talk to me i am nice i swear i always try my best ot be approachable 
+
+
 𓂃 DO NOT copy my skins, if you want to take inspo PLEASE message me first please and thank you
 
 𓂃 i yume/selfship with The Celestial (Nullscape) and Vee ( DW) selective sharing doubles iwc
 
 <img align="right" width="180" alt="awwww" src="https://github.com/user-attachments/assets/3baee16f-61c3-4343-a8a3-9a5b48b2fd19" />
+
 𓂃 Please check my pronouns page for more! it has most of the important information on there 
 
+
 𓂃 I am pony towns The Celestial (Nullscape)! thank you all for nominating me <3
+
 
 𓂃 Alts : DoomInBloom + Beatzpurminote
 
